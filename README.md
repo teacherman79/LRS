@@ -1,2 +1,2 @@
 # LRS
-going to change things here
+I think I am figuring things out a little bit.
